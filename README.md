@@ -16,3 +16,8 @@ Hehe cha cha, miss na kita. Nagtatae parin me pero don’t worry, umiinom naman 
 Di ako makatulog eh, kaya ginawa ko? Umiyak ako ng patago para kako mawala. Punta ako ng Summer Fest hehe. Sana kasama kita don kahit malungkot mga kanta, pero baka sila Alex nalang din since wala naman na tayo. Haha. 
 
 I love you, bebu. That's all for today.
+
+### Feb 25 2025 Day - 6
+Bebu miss na miss na talaga kita gusto na kita yakapin and mag pa baby sayo. hindi parin nawawala sakit ng tiyan ko bebu ang sakit paarin
+kahit uminom na me ng gamot wahhhh. nag proprogram lang dim me maghapon nag papaataba ng portfolio and tinatapos yung mga kailangan gawin
+naaya din ako mag laro hehe kaya napalaro din pero balik padin me sa goal ko na yumaman bago ka ligawan ulit. thats all for day 6 bebu I love you so much.
