@@ -22,8 +22,15 @@ Bebu miss na miss na talaga kita gusto na kita yakapin and mag pa baby sayo. hin
 kahit uminom na me ng gamot wahhhh. nag proprogram lang dim me maghapon nag papaataba ng portfolio and tinatapos yung mga kailangan gawin
 naaya din ako mag laro hehe kaya napalaro din pero balik padin me sa goal ko na yumaman bago ka ligawan ulit. thats all for day 6 bebu I love you so much.
 
-### Feb 25 2025 Day - 7
+### Feb 26 2025 Day - 7
 Hello, Bebu ko miss na miss kita, pumasok ako kanina kahit masakit parin yung aking tiyan bwhahah. Nagagawa parin ako mga project ko tuwing namimiss kita haha para hindi ako nalulunkot sabay kinig lang ng music. nasabi ko na kay lola na hiwalay na tayo mejo malunkot sya parang gusto    
 pa nya tayo mag balikan habang sinasabi ko kanina, hayaan mo hindi ko naman sinabi mga reason ayoko masira yung image mo sakanila since makikita
 ka pa nila ulit after 2 year. bebu haha 1 week na baka simulan ko narin gumawa ulit ng mga poem para sayo kung gaaano kita namimiss. 104 weeks din yun 103 nalang since 1 week down konti nalang bebu pwede na ulit kita ligawan, inaayos ko parin sarili ko bago dumating yung araw nayun bwhaha.
 Thats all for today I love you so much. Goodnight Sweetdreams Sleepwell MWA.
+
+### Feb 27 2025 Day - 8
+Henlo mah bebu, mejo nag heheal na me pero ayun nga matigas naman na tae ko bwhahaha di na gano nahilab yung tiyan ko pero masakit padin minsan
+wala kaming natapos sa activity namin kanina kasi nga nabobo si marius tsaka si sir. hinihintay kita dumaan kanina kasi hindi na kita talaga makita 
+kahit sobrang liit ng wup. kumakain nadin ako ng tanghali kasi nga nag bubulk na ulit ako, sinimulan ko narin kasi mag workout ulit. plano ko sa sat or sun 
+mag paturo kay daddy mag drive kahit sandali lang para lang  masanay narin ako since malapit narin ako mag graduate bwahaha. yun lang naman bebu.
+as always for the past few days, Goodnight Sleepwell Sweetdreams I LOVE YOU SO MUCH MY BEBU BEAR sana ok lang kayo ni jin mwaaaa.
