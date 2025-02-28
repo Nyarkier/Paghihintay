@@ -2,6 +2,10 @@
 
 ## A Rant by Kurt Valerio to Kristine Co - My Bebu
 
+## This is my way of catching you up with my life from the first few weeks to the last day.
+
+
+
 ### February 22, 2025 - Day 3
 Ayun, chinat ko nanaman kaso sana di na nya replayan hehe. Dito nalang ako magdo-document ng mga iniisip ko. Madaling araw na, iniisip parin kita.
 
@@ -34,3 +38,13 @@ wala kaming natapos sa activity namin kanina kasi nga nabobo si marius tsaka si 
 kahit sobrang liit ng wup. kumakain nadin ako ng tanghali kasi nga nag bubulk na ulit ako, sinimulan ko narin kasi mag workout ulit. plano ko sa sat or sun 
 mag paturo kay daddy mag drive kahit sandali lang para lang  masanay narin ako since malapit narin ako mag graduate bwahaha. yun lang naman bebu.
 as always for the past few days, Goodnight Sleepwell Sweetdreams I LOVE YOU SO MUCH MY BEBU BEAR sana ok lang kayo ni jin mwaaaa.
+
+### Feb 28 2025 Day - 9
+Bebu ang aga ko nag relapse kanina nag iiyak ako sa dito sa kama. mejo late ko na napakain mga dogs pero wala talaga miss na miss na kita ehhh
+kahit anong gawin ko ikaw parin naiisip ko, wala na talaga bebu unti unti ko na tinatangap na minsan minsan nalang tayo mag kikita 
+kaya ayun andinto nalang me trying to be the best version of myself sana ikaw din nagagawa mo mga gusto mo. nanood kami nila mondy ng cine 
+dapat talaga i dadate ko sarili ko nonood ako ng untold melody na movie kaso nag aya din sila kaya ang pinanood ko is yung captain america same price
+lang din naman kasi ahahha, pero ayun nga bebu yun lang naman nangyari sa araw ko na miss lang kita lalo day by day, walang araw na lumipas na hindi kita iniisip
+ganito pala pag mahal na mahal mo yung isang tao bwhahaha nakakmiss lang din siguri na magkasama tayo sa appartment tuwing friday. pero im trying my hardest
+to move on and focus on the future ang hirap lang gawin nun kung may malaking butas sa puso ko haha. I love you bebu Goodnight Sleepwell Sweetdreams mwaaaa.
+
