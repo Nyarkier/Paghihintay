@@ -40,7 +40,7 @@ mag paturo kay daddy mag drive kahit sandali lang para lang  masanay narin ako s
 as always for the past few days, Goodnight Sleepwell Sweetdreams I LOVE YOU SO MUCH MY BEBU BEAR sana ok lang kayo ni jin mwaaaa.
 
 ### Feb 28 2025 Day - 9
-Bebu ang aga ko nag relapse kanina nag iiyak ako sa dito sa kama. mejo late ko na napakain mga dogs pero wala talaga miss na miss na kita ehhh
+Bebu ang aga ko nag relapse kanina nag iiyak ako sa dito sa kama pano naman kasi napaniginipan kita na tapos na daw yung 2 years. mejo late ko na napakain mga dogs pero wala talaga miss na miss na kita ehhh
 kahit anong gawin ko ikaw parin naiisip ko, wala na talaga bebu unti unti ko na tinatangap na minsan minsan nalang tayo mag kikita 
 kaya ayun andinto nalang me trying to be the best version of myself sana ikaw din nagagawa mo mga gusto mo. nanood kami nila mondy ng cine 
 dapat talaga i dadate ko sarili ko nonood ako ng untold melody na movie kaso nag aya din sila kaya ang pinanood ko is yung captain america same price
