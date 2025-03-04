@@ -1,8 +1,8 @@
-# 2 Years, 24 Months, 104 Weeks, and 2 Days - 730 Days of of moving on
+# 2 Years, 24 Months, 104 Weeks, and 2 Days - 730 Days
 
 ## A Journey of mine
 
-## This is my way of catching you up with my life from the first few weeks to the last day.
+## This is just a public rant of mine
 
 
 
@@ -47,4 +47,28 @@ dapat talaga i dadate ko sarili ko nonood ako ng untold melody na movie kaso nag
 lang din naman kasi ahahha, pero ayun nga bebu yun lang naman nangyari sa araw ko na miss lang kita lalo day by day, walang araw na lumipas na hindi kita iniisip
 ganito pala pag mahal na mahal mo yung isang tao bwhahaha nakakmiss lang din siguri na magkasama tayo sa appartment tuwing friday. pero im trying my hardest
 to move on and focus on the future ang hirap lang gawin nun kung may malaking butas sa puso ko haha. I love you bebu Goodnight Sleepwell Sweetdreams mwaaaa.
+
+
+### Mar 1 2025 Day - 10
+bwhahahha late gumising kasi tinatapos ko talaga pilit yung mga commision sakin bwhaha
+madami pa me kailangan gawin. nirereto na sakin ni albert yung pinsan nya maganda naman
+kaso ayaw ko since chinat na nga ni alex and hindi ako pumapatol sa nagustuhan ng tropa
+ayun nag laro lang din kami nila dom maghapon
+
+### Mar 2 2025 Day - 11
+mejo busy sa house chores bwahhaha ka cute ni lola hindi nya alam san kami pupunta sa remembrance ni lolo
+kung saan saan na nag aaya magulang ko bwhahaha
+
+### Mar 3 2025 Day - 12
+ayun mejo ok naman na ako. Hindi na ako gaanong nalulunkot bigla nalakas din kain ko ng konti and pinipilit ko na mag exercise 
+every other day cardio ako tuwing monday and wednesday then the other days mag bubuhat ako bwhahha. may nirereto sakin jowa ni flo 
+kaso ayoko pa muna mag rs siguro, baka hindi rin nila tangapin dine sa bahay wbhaha
+
+### Mar 4 2025 Day - 13
+sarap ng tulog ko bwhaha diko alam na ngayon pala aalis si mommy ayun masaya naman ako antagal nya din dito 
+tapos may trip pa pala kami bwhahaha dami ko pa gagawin di ko pa tapos mga commision bwhaha, masaya naman ako 
+sa ginagawa ko. nag follow si sabado sa ig bwhahaha nak nantokwa pero ayun nga hindi ko alam if mag dedelete na ba me 
+ng mga pictures or something
+
+
 
