@@ -1,6 +1,6 @@
-# 2 Years, 24 Months, 104 Weeks, and 2 Days - 730 Days of Waiting
+# 2 Years, 24 Months, 104 Weeks, and 2 Days - 730 Days of of moving on
 
-## A Rant by Kurt Valerio to Kristine Co - My Bebu
+## A Journey of mine
 
 ## This is my way of catching you up with my life from the first few weeks to the last day.
 
