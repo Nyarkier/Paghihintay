@@ -1,8 +1,8 @@
 # 2 Years, 24 Months, 104 Weeks, and 2 Days - 730 Days
 
-## A Journey of mine
+## A Journey docu about pano ako unting unti gumaling
 
-## This is just a public rant of mine
+## "You can't move to the next chapter of your life if you keep re-reading the last one"
 
 
 
