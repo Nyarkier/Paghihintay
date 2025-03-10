@@ -70,5 +70,38 @@ tapos may trip pa pala kami bwhahaha dami ko pa gagawin di ko pa tapos mga commi
 sa ginagawa ko. nag follow si sabado sa ig bwhahaha nak nantokwa pero ayun nga hindi ko alam if mag dedelete na ba me 
 ng mga pictures or something
 
+### Mar 5 2025 Day - 14
+Wala gaano nangyari tambay lang sa office bwhahah
+
+
+### Mar 6 2025 Day - 15
+pumasok ako ng maaga para gumawa ng activity tas ayun uwi din maaga para mag laro bwahhah
+
+
+### Mar 7 2025 Day - 16
+walang pasok so ayun tulog lang ako maghapon wbhaha wala nanaman ako magawa ehh shempre nag lalaro lang ako then 
+sabay coding sa gabi
+
+### Mar 8 2025 Day - 17
+1 year na wala si lolo. maaga ako gumayak paalam ko is gagawa kami ng project pero ang totoo nag swimming lang talaga kami sa resort ni renz
+ang saya bwahha maghapon ko kabugukan ang mga tropa. na realize ko na sigi lagi na akong sasama sa mga outing namin 
+ang saya pala nun nalang ulit ako uminom ng beer ok lang naman. miss ko na si lolo
+
+### Mar 9 2025 Day - 18
+gumising ako ng maaga para mag feed dogs tulog mag hapon ulit since napuyat ako nanonood mag dota kila alex bwhaha
+ayung nga may nakakausap na rin ako pero not sure pa kung san kami mapupunta pero i feel mejo ok na 
+dont worry i wont go sa rs kapag di pa ako sure
+
+### Mar 10 2025 Day - 19
+gumagawa kami nila marius dine sa bahay bwahhah ka cute andine kami nila claire + sila mondy na amaze ako punta daw sila bherez ehh ayaw din ni mondy bwhahahhaa
+tinatakbuhan mga buntot kala sila mondy lang pika dun bwhahaah pati pala sila claire nainis na. anyways ayun gabi nanaman so self growth muna ako buhat + cardio bwhaha that is all muna 
+
+
+
+
+
+
+
+
 
 
