@@ -98,8 +98,12 @@ tinatakbuhan mga buntot kala sila mondy lang pika dun bwhahaah pati pala sila cl
 
 
 
-
-
+### Mar 19 2025 Day - 29
+its been almost a month since you left me and I can say na i've moved on na. hindi na ako nasasaktan, Nag simula na din ako tumakbo araw-araw ng 2km in a span of 20 mins
+masaya naman ako sa kausap ko ngayon mabait naman si pat sobrang busy ngalang kaya ayun nahahawa ako. pupunta akong summerfest pero mag pipicture lang talaga ako dun bwhahah 
+gusto ko kasing gumawa ng documentation ng 3rd year. the small moments are what matter the most lalo na sakin haha. I can say na im happy na we broke up, cause i got to meet new people
+and i learnt to love myself and madami akong natutunan na lesson about sa past mistakes na hindi na sana maulit sa mga next rs ko.
+KAYA KO NG WALA KA. KAYA KO MAG ISA. I DONT RESENT YOU, NOR HARBOR ANY HATE TOWARDS YOU. I'M JUST HAPPY THAT THINGS WENT HOW THEY WENT. "QUE SERA SERA"
 
 
 
